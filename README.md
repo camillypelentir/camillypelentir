@@ -1,7 +1,7 @@
-- Olá me chamo Camilly
+- Olá me chamo Camilly🖤
 - Estou interressada em estudar📖
-- Atualmente estou aprendendo no Alura
-- Entre em contato comigo pelo meu email
+- Atualmente estou aprendendo no Alura🔎
+- Entre em contato comigo pelo meu email🌼
   camilly.pelentir.costa@escola.pr.gov.br
 
 
