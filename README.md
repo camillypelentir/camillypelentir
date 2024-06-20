@@ -14,4 +14,4 @@ You can click the Preview link to take a look at your changes.
 
 
 
-![image](https://github.com/camillypelentir/camillypelentir/assets/136636384/2d162716-a83a-48b6-9f77-4a477ea9afd3)
+![2fbf66802f50c0da6d59732878686c4a_w200](https://github.com/camillypelentir/camillypelentir/assets/136636384/c0851533-e615-49d6-8a46-c962bc3ebdd5)
